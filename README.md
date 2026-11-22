@@ -1,1 +1,1 @@
-# BBC-Homeworks-Semidianova_Kseniya_BPM26_6_4
+# Семидьянова Ксения, БПМ26_6_4
